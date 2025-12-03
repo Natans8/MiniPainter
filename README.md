@@ -1,0 +1,1 @@
+[Link to Presentation](https://hitacil-my.sharepoint.com/:p:/g/personal/natans_my_hit_ac_il/IQAIkiDwJxfyQ6cT8t_wbKUaAYCXVEnT64CrT4EvC3ZnkdU?e=YCl0RJ)
